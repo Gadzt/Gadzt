@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Gadzt
+- 👀 I’m interested in reading, teaching and learning.
+- 🌱 I’m currently learning Psychology and many interesting stuff.
+- 💞️ I’m looking to collaborate on nothing for the moment.
+- 📫 How to reach me: To my e-mail.
